@@ -10,4 +10,5 @@
 ▸ On-time delivery with unlimited revisions.
 
 I am always open to collaborating with startups, agencies, and businesses to create impactful digital products. If you'd like to discuss a project or explore collaboration opportunities, feel free to connect with me on LinkedIn or reach out via email: 
+
 ↘ 𝗵𝗮𝘀𝗶𝗻𝗿𝗮𝗶𝗵𝗮𝗻.𝗱𝗲𝘀𝗶𝗴𝗻@𝗴𝗺𝗮𝗶𝗹.𝗰𝗼𝗺
